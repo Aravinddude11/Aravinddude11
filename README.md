@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **aravinddude558@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/134H1rNxHyd75wG7K_cjoIC7PT9wYum45/view?usp=drivesdk](https://drive.google.com/file/d/134H1rNxHyd75wG7K_cjoIC7PT9wYum45/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/134H1rNxHyd75wG7K_cjoIC7PT9wYum45/view?usp=drivesdk](https://drive.google.com/file/d/1_6_peEahaAxng0Mxw6kW2hOWqBDgF2ei/view?usp=drivesdk)
 
 - ⚡ Fun fact **Code is Fun Until you get a Bug**
 
